@@ -7,4 +7,4 @@ Open to front-end developers working on frontend technologies, mobile software d
 mobile technologies, and blockchain smart contract developers building solutions for the blockchain 
 ecosystem within our community buidling usable products
 
-Let's fucking GOOOOOOOOO!
+Lets GO!
